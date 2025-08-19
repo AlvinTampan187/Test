@@ -1,1 +1,1 @@
-mboh
+mboh lah nduk
